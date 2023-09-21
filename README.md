@@ -1,2 +1,0 @@
-# zucaritas1
-descZucaritas
